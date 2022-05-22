@@ -171,3 +171,210 @@ Meus olhos estavam úmidos, e eu pisquei rapidamente, tentando limpá-los. Não 
 Eu o cortei. Maric o fez. Maric prometeu à sua mãe para te afastar do tribunal, mas ele queria você em algum lugar que ele pensou que você estaria seguro. Ele amava sua mãe; ele implorou-lhe para ficar, mas ela não podia. Ele te amava. Meu palpite é que ele queria que você treinasse como cavaleiro. Por que ele decidiu que seu cunhado, o irmão de sua falecida esposa, que não tinha nenhuma relação com você e que iria vê-lo como uma mancha potencial na memória de sua irmã, deve ser o único a criá-lo que eu nunca vou entender. Ou talvez eu.eamon tenha um jeito de fazer os outros pensarem que ele é um cara honrado. Talvez Maric tenha caído. Ele deveria ter mandado você para Rainesfere ou mesmo Highever, embora eu espere que ele se preocupou que se alguém descobrisse quem você era eles tentariam usá-lo contra Cailan quando chegasse a hora...
 
 "Independentemente disso, posso garantir que ele não queria que você dormisse no feno, ou sujasse os canis, ou fosse tratado como menos que um servo. Ou ir ao Chantry, para esse assunto. Aposto que Eamon te levou para o castelo e mandou você limpar e parecer apresentável toda vez que Maric visitou, estou certo?" Ele parecia pensativo, mas depois de uma hesitação curta, lentamente acenou com a cabeça. "Ele não podia permitir maric para descobrir como você viveu. Só posso presumir que Eamon te mandou para Chantry sem avisar Maric, e quando ele descobriu que era tarde demais. Ele não poderia resgatá-lo sem reconhecê-lo, e ele prometeu não fazê-lo. Suspeito que Maric pediu ao Duncan para tirá-lo do Chantry antes de fazer seus votos. Claro, ele não sabia que a Adesão poderia ter matado você.
+
+
+Seu rosto estava desenhado, expressão triste como ele pensou sobre o que eu tinha dito. Eu queria tirar a dor dele, mas sabia que só o tempo poderia fazer isso. Eu me inclinei e beijei-o suavemente.
+
+"Eu sei que você se sente grato a Eamon, e eu elogio você por sua atitude de caridade. Pessoalmente, eu gostaria de chutá-lo nos inescritíveis com botas de aço. Essa é uma das maneiras que eu sei que você é uma pessoa melhor do que eu sou. Eu sorri, e ele sorriu fracamente. "Mas o fato é que você é uma boa pessoa, uma pessoa incrivelmente forte, além de ser linda, doce, atenciosa e extremamente boa na cama. Que tal você parar de pensar em si mesmo como sendo imerecido, ou terei que bater em você. E enquanto Zevran pode pensar que soa como diversão, eu posso lhe assegurar, você não vai gostar.
+
+Ele riu, e algo em seu rosto mudou. Eu sabia que ele não tinha aceitado, não tinha aceitado tudo ainda, mas naquele momento eu sabia que ele iria, eventualmente. E eu não poderia estar mais orgulhoso.
+
+"Falando em..."
+
+"Você realmente vai começar uma frase com 'falando em espancamento'?"
+
+"Cale a boca, mulher."
+
+Ele me beijou então, ea paixão era inegável. Por mais dolorido que eu estivesse, quando ele pegou meu mamilo na boca e começou a acariciar meu clitóris, eu não poderia ter dito não se minha vida dependesse disso. Depois que eu entrei em seus dedos, ele rolou entre as minhas coxas e não parou até que eu estava gritando o nome dele.
+
+Enquanto eu estremecia, ele me perguntou sobre minha estranha explosão na noite.
+
+"O que é essa coisa de salão?"
+
+"Hall...? Direita. Aleluia. É... Aleluia é algo que as pessoas na Terra dizem quando elogiam Deus por algo. "Aleluia, estamos salvos!" Mas também é uma canção, e as palavras de um dos versos pareciam realmente apropriadas."
+
+"Bem, agora você tem que cantar para mim."
+
+"Talvez mais tarde. Ou, você sabe, não. Mas o verso que eu estava pensando é assim: lembra quando me mudei para você, a escuridão sagrada estava se movendo também, e cada respiração que desenhávamos era aleluia?"
+
+Ele me beijou suavemente, e eu sorri em sua boca. "Talvez eu ensine a Leli mais tarde."
+
+Capítulo Quarenta e Seis: A Manhã Depois
+
+Eu dormi de novo, eu presumo, porque quando acordei eu estava sendo muito gentilmente lavado. Alistair ajoelhou-se na cama ao meu lado, um olhar intenso de concentração em seu rosto. Vendo que eu estava acordado, ele me encorajou a rolar para as costas e espalhar minhas coxas, e ele limpou nossas secreções combinadas de primeira minhas coxas, depois ainda mais suavemente da minha virilha. Eu vi seu rosto, admirando como ele era bonito, desejando que eu pudesse mostrar a ele como ele era da minha perspectiva.
+
+Seus olhos se largura, e seu olhar absorvido foi subitamente substituído por uma expressão assustada.
+
+"Alistair, o que há de errado?"
+
+"Eu... você..." Ele gesticulava impotente para o pano que ele estava segurando, e eu olhei para baixo para ver vestígios de sangue manchando o tecido. "Você me disse que eu não te machuquei." Auto-recriminação era óbvio em sua voz.
+
+"Está tudo bem. Não estou ferido, Alistair. É que... Bem, você sabe que eu tenho um corpo diferente, de volta de onde eu vim, certo?
+
+Ele acenou com a cabeça, ainda franzindo a testa.
+
+"Bem, foi aquele corpo que fez sexo antes. Não esse. É normal para uma mulher sangrar uma pequena quantidade depois da primeira vez.
+
+Sua carranca levantou, e ele finalmente encontrou meus olhos, parecendo julgar a verdade das minhas palavras.
+
+"Eu não estou com dor, amor. Um pouco duro, eu tenho que admitir, mas nada como o que eu sentiria se você tivesse me machucado.
+
+Ele relaxou, finalmente. "Talvez devêssemos ter Wynne para verificar você, por precaução?"
+
+"Mais uma vez, o que eu diria? Eu caí da escada, você poderia ver por que eu estou sangrando a partir do - "
+
+"Ok, ok!"
+
+"Você está tão envergonhado com a palavra?"
+
+Sua expressão tornou-se evasiva. "Que palavra?"
+
+"Vagina".
+
+Evasivo deu lugar à beterraba vermelha. "Ah! Não diga isso."
+
+"Realmente? Você está perfeitamente disposto a jogar com ele, mas você não pode dizer isso? Eu ri. "Vagina. Vagina vagina vagina."
+
+Ele colocou as mãos sobre as orelhas, e começou a cantarolar para si mesmo. "La la la, não está ouvindo!"
+
+Eu me desmurado, e ele finalmente se juntou com uma pequena risada quando ele viu que eu estava rindo muito duro para continuar dizendo a palavra. "Lembre-me de falar sujo da próxima vez que formos."
+
+Ele pulou da cama, falando sobre mim numa tentativa desesperada de bloquear o que eu estava dizendo e mudar de assunto. "Então acho que devemos nos vestir, aposto que Aedan está nos esperando lá embaixo."
+
+Eu ri, mas deixe o assunto mudar de pé. Levantando-me, percebi que estava um pouco mais duro do que diria, mas determinado a não deixá-lo aparecer. Alongamento desencadeou um gemido apreciativo de Alistair, e eu ignorei, pegando minhas roupas e escolhi uma camisa e um par de calças. Eu me distraí vendo Alistair shimmy em suas próprias calças, corando e correndo para escorregar na minha quando ele me pegou olhando. Quando peguei meu sutiã, tive que parar e mostrar ao Alistair como funcionavam os fechos e o elástico; ele estava fascinado pela roupa. Finalmente colocando-o, senti a necessidade de passar minhas mãos sobre seu peito forte mais uma vez antes que ele colocasse sua camisa no lugar, e ele corou.
+
+Descer escadas provou ser bastante desconfortável em meus quadris e músculos da virilha, e eu mordi minha bochecha para evitar grunhidos de dor. Felizmente as escadas eram estreitas, então Alistair teve que descer na minha frente e não podia ver meu rosto. Encontramos a maioria de nossos companheiros em uma mesa redonda no canto já enchendo seus rostos; o lugar estava quase deserta. Leliana olhou para nós desconfiado, saindo em um sorriso completo quando ela me viu sorrindo; Aedan se recusou a fazer contato visual, e Wynne nos cumprimentou distraídamente, seu nariz ainda em seu livro. Zevran estava do outro lado da sala falando com alguém, acenando enquanto o outro homem gesticulava. Ele era alto, pelo menos em comparação com o elfo, mas suas feições foram obscurecidas por um capuz. Zevran era o único em armadura; todo mundo usava roupas simples. Eu dei de ombros e sentei, Alistair de um lado, uma lacuna e, em seguida, Aedan do outro.
+
+Aedan acenou para Sanga e ela acenou com a cabeça, eu presumi entender que ela deveria nos trazer placas também. Havia algo que parecia bolinhos, geleia, salsichas, e até panquecas; De repente, eu estava morrendo de fome. Muito exercício ontem à noite... Eu amontoei meu prato cheio quando foi apresentado a mim, desencadeando um peal de riso de Leliana, e um grunhido irritado de Aedan. Não consegui descobrir qual era o problema dele, até que notei que as orelhas estavam vermelhas e uma veia pulsando na testa. Ele deve ter adivinhado o que aconteceu com Alistair e eu ontem à noite... Eu me perguntava se ele viria bater na porta em um momento inconveniente ou algo assim. Decidi ignorá-lo e esperar que ele tenha superado.
+
+Quando Zevran voltou, ele sentou-se ao meu lado com um florescimento, pegando minha mão e beijando-a ostensivamente, como ele não tinha feito desde pouco depois que nos conhecemos, chamando-me de sua "bela pomba". Alistair nem endureceu, acho que a confiança dele está em melhor forma do que eu pensava, mas eu estava confuso, até sentir algo sendo firmemente pressionado na minha mão. Quando Zev me libertou, eu tinha uma pequena garrafa ao meu alcance. Eu segurei-o, entre ele e eu, e olhei para ele sub-repticiamente, apenas para perceber que era uma poção curativa como ele tinha me dado depois da minha tatuagem, como os que Wayne costumava me dar depois do treinamento para tratar músculos puxados, apenas vazios. Levantei as sobrancelhas para ele, mas ele sorriu inocentemente e acenou com a cabeça para a minha caneca. Eu nem o tinha visto dando minha bebida!
+
+Todos sabem que fizemos sexo? Eu suspirou, mas tomei um gole do que quer que fosse. Tinha um gosto horrível, mas não sabia se era a cerveja regada ou a poção causando o problema. Eu cobri minha mordaça e bati o resto do conteúdo de volta. Em poucos minutos, minha rigidez diminuiu, e algumas picadas que eu nem tinha notado desapareceram. Eu sorri para Zev, e ele sorriu de volta.
+
+Uma vez que todos tinham comido, começamos a discutir planos para o dia. Leliana me reivindicou algumas compras; Aedan queria que Zev, Alistair, Wynne, Prince, e ele mesmo fossem encontrar algum trabalho, embora ele fosse um pouco vago sobre o que eles fariam. Eu mencionei sargento Kylon, e ele acenou com a cabeça, mas ele não tinha eles também pensaram que tentariam a prancha do Chanter. Enquanto eles estavam fora, eles estavam indo para a rua onde Marjolaine estava hospedado, e Leli e eu tínhamos ordens estritas para ficar bem longe. Decidimos que Leliana poderia ir como minha guarda-costas, e, portanto, usar seu capacete, para desânimo do bardo, mas achamos que era seguro o suficiente para meu rosto ser visto- Loghain não sabia nada sobre mim.
+
+Alistair, Aedan, Leliana e Wynne foram até seus respectivos quartos para nos prepararmos, enquanto Zevran e eu ficamos na sala comum e conversamos por um tempo, já que ele já estava de armadura, e eu não tinha pressa; Eu precisaria de outro banho antes que eu pudesse passar como uma nobre ferelden. Assim que todos limparam a sala, virei-me para zev, determinado a obter algumas respostas.
+
+"Ok, então o que foi tudo isso ontem à noite com Alistair? O que você deu a ele?
+
+Os olhos de Zevran brilhavam maliciosamente. "Nosso amado Diretor me perguntou se eu sabia de algo para melhorar seu desempenho no quarto, Bella Donna. Ele estava nervoso por não poder agradá-lo. E funcionou, não foi? Você certamente olha... satisfeito, sim?
+
+Eu olhei para ele por um momento, ainda assustado além de comparar que Alistair teria ido ao assassino para conselhos sexuais. E então o resto do que ele disse filtrado, e eu de cara-de-rosto.
+
+Eu assouei sob minha respiração, não querendo que ninguém ouvisse minha resposta. "Você deu-lhe Viagra? Você está brincando comigo? Seis vezes, Zevran. Tive seis orgasmos em quatro horas! Eu tinha certeza que eu teria um derrame, em um ponto lá dentro. Você poderia pelo menos ter dado a ele uma meia dose, pelo amor de Deus.
+
+"Ah, mas cara mia, você me entendeu mal. Ele pediu algo para melhorar o desempenho. Eu não lhe dei uma coisa dessas. Estou bem familiarizado com a resistência de Grey Warden, minha pomba. Eu sabia que ele não precisava de nada para aumentar o desempenho, exceto possivelmente alguma confiança. Então eu dei-lhe algum extrato inofensivo de elterraba, que na melhor das hipóteses teria cuidado de quaisquer pequenos desconfortos que ele teve, e eu tomei a liberdade de adicionar em um ... Bem, não seria fazer para ter um filho durante uma praga, não? Eu disse a ele que garantiria que ele fosse capaz de executar o melhor de sua capacidade, e deixá-lo assumir o resto. Não foi precisamente uma mentira, foi? E eu diria que acabou muito bem.
+
+Minha boca se abriu e eu gaguejei inutilmente por um momento antes de me recolhê-lo novamente. "Você deu a ele um placebo, e anticoncepcional?" Eu contemplo o gesto bastante atencioso de Zevran. Uma gravidez definitivamente não foi do nosso interesse. Mas ele não sabia que eu tinha um DIU, na Terra, então não precisávamos do contraceptivo. Embora seja um corpo diferente... Talvez sim? Mas não tive minha menstruação, desde que cheguei aqui... Minha cabeça ameaçou explodir, e eu me concentrei nas palavras de Zevran.
+
+"Eu não sei essa palavra, placebo. Mas se quer dizer que eu disse a ele que era medicinal quando não era, exatamente, então sim. Eu fiz.
+
+"E ele ainda... seis vezes?
+
+"Os Guardas Cinzentos são maravilhosos, não são?"
+
+"Bem, pelo menos eu sei como você sabia que fizemos sexo ontem à noite."
+
+"Ah, bem, eu odeio discordar de uma mulher bonita como você, mas Bella Donna... Tenho certeza que todos dentro de três quarteirões deste estabelecimento sabem que você estava, digamos, ocupado, ontem à noite. Você não é precisamente... silêncio.
+
+Meu rosto estava quente, e eu enterrei em minhas mãos, balançando em agitação. "Eu... nós... eram tão alto?
+
+Arrisquei um olhar para seu rosto, e ele me deu um sorriso perverso. Eu gemi. "Não admira que Aedan era tão estranho no café da manhã!"
+
+"Hmm? Oh, sim, bem, essa foi uma razão, eu suponho.
+
+"Uma razão?"
+
+"Eu prefiro pensar que ele estava preocupado em encontrar uma certa rainha pirata lusty."
+
+"Onde está Isabela esta manhã, afinal?"
+
+"Imagino que ela penetrou em seu próprio quarto para tentar dormir um pouco."
+
+Algo em sua voz me deixou desconfiado, e eu me virei para olhar para Zevran, intrigado. "Ela ficou acordada a noite toda?" Ele acenou com a cabeça, sua expressão, se possível, ainda mais presunçoso do que o normal. Meus olhos se abriram horrorizado. "Você não fez. Zevran, zevran! Por favor, diga que não debocha meu irmão com Isabela."
+
+Seu sorriso aumentou ligeiramente, e então seu olhar inocente escorregou no lugar. "Eu não fiz. Seu irmão tinha três lençóis ao vento, e ele e Isabela conseguiram... "debochando"... tudo por conta própria, realmente. Eu assisti principalmente - a primeira vez, de qualquer maneira ". O brilho em seu olho desmentiu sua expressão Chantry-goer.
+
+Eu gaguejei novamente. "Eu estava brincando quando eu sugeri isso!"
+
+Sua fachada inocente escorregou e ele realmente riu. "Bem, talvez você deve ter cuidado com o que você brinca, sim?"
+
+E então eu soube por que Isabela não tinha ficado na sala comum para a briga. Ela tinha outro lugar para estar. Eu gemi de novo, escondendo meu rosto corando em minhas mãos mais uma vez. Nunca mais serei capaz de olhar Aedan nos olhos. Esperar...
+
+"Zevran?"
+
+"Sim, cara mia?"
+
+"Não foi a primeira vez dele com uma mulher?" Depois que ele admitiu sua preferência sexual, Aedan e eu tivemos algumas discussões francas sobre sua experiência, ou falta dela antes de Zevran, que consistia basicamente de algumas sessões ocultas e furtivas de tateamento com Ser Gilmore.
+
+"Eu acredito que sim, sim."
+
+Esbofeteei minha testa de novo. "Você deixou ele... seu primeiro... Isabela?" Eu não podia nem falar entre mortificação e indignação justa.
+
+"Eu não acredito que ele teve qualquer reclamação. Claro, ele não admitiria isso com ela ali, suponho..."
+
+"Zevran, eu vou te matar. Um dia, quando você menos esperar isso.
+
+"O que ele fez agora?" Leliana ploped no banco ao meu lado, expressão divertida.
+
+"Não importa. Eu preciso tomar um banho.
+
+"Espere, eu não sei o que fazer. Antes de ir... bem, aqui. Ele me deu uma pequena garrafa, cheia de pó cinza.
+
+"O que é isso?"
+
+"O... medicina, eu te falei. Para Alistair. Uma pequena pitada por dia, sim? Zevran sorriu descaradamente.
+
+Eu pulei, esbofeteei Zev levemente na parte de trás da cabeça, ganhando uma risada lascívia, e então fui para as instalações de banho. Encontrei Aedan e Alistair, recebendo um abraço do primeiro, e um beijo bastante entusiasmado do segundo. Lembrei-os de ficarem seguros antes de saírem para fazer o reconhecimento e ganhar algum dinheiro. Leliana deve ter avisado alguém sobre o banho, porque o menino estava saindo da câmara de banho quando eu cheguei, e a banheira afundada estava fervendo.
+
+Lavei meu cabelo, depois ensaboei o resto de mim, desfrutando da sensação de me livrar do suor que ganhei da noite para o dia. Uma das pequenas garrafas perto da banheira cheirava a condicionador, então coloquei um pouco no meu cabelo, e para meu deleite, foi capaz de vasculhar facilmente meu cabelo geralmente emaranhado. Decidi perguntar ao Sanga se podia comprar mais tarde. Eu escorreguei no meu vestido de veludo falso, amarrei meu cabelo em um coque trançado, e voltei para a sala comum. Leliana esperou lá sozinha, e quando cheguei, ela escorregou de capacete e me acompanhou de volta ao mercado.
+
+Compramos pela manhã, comprando-me dois pares de sapatos sensíveis, e cada um de nós um par de sapatos completamente frívolos chiques. Ela insistiu em me pedir um vestido novo, um vestido de nobre Fereldan, embora eu tenha reunido que as modas não eram exatamente para os padrões do bardo. Eu pensei que era lindo; era uma borgonha profunda com acentos dourados, ia ser apertado através do corpete, e então fluir para o chão e swish quando eu andei. Não fazia ideia de quando ela pensou que eu usaria, mas não pude dissuadi-la.
+
+Ninguém no mercado nos incomodou, embora tenhamos visto muitos mercenários que nos observavam com gratidão; Eu acho que Leliana estar claramente armada até o fim desanimou qualquer assédio. Comemos tortas de carne compradas de um vendedor ambulante para o almoço, e apesar de não ter ideia do tipo de carne que eles continham, eu consegui descer a minha sem problemas. Leliana claramente queria me perguntar sobre a noite anterior, mas teria parecido estranho para um guarda-costas estar rindo com seu empregador, então ela decidiu esperar.
+
+Procurei por um anão de barba vermelha no mercado, mas não o encontrei. Esperava que nada tivesse acontecido com Gorim, com todas as mudanças que aconteceram desde a minha chegada. Resolvi pegar Aedan e encontrá-lo no dia seguinte.
+
+Cansados da falta de sono na noite anterior e da caminhada, voltamos para o Pérola no início da tarde. Isabela estava na sala comum, com os olhos inchados e vermelhos, bebendo caldo, e eu tive que rir. Aparentemente Aedan não foi o único que se entregou ontem à noite! O pirata convidou Leli e eu para sentar com ela; pelo consentimento mútuo não dito, sentamos juntos em frente ao Rivaini.
+
+Conversamos por um tempo, antes que me ocorresse que havia algumas coisas que eu queria contar à Isabela. Pensei nisso enquanto conversávamos. Eu não queria avisá-la do desastroso trabalho de transporte de escravos que ela aceitaria após o fim da Blight, que sabia o que aconteceria com aquelas pessoas pobres se alguém aceitasse o contrato, e tivesse menos consciência, mas eu queria impedi-la de roubar o Tomo de Koslun, se possível. Então me ocorreu que se eu a impedisse, Castillon poderia contratar outra pessoa para roubá-lo em vez disso, e poderia ser um desastre político ainda maior com os Qunari. No final, eu dei a ela um aviso vago sobre encontrar alguém chamado Hawke, e confiar-lhes com qualquer problema em que ela estava. Talvez se Isabela se abrisse para Hawke mais cedo, ela poderia evitar alguns dos piores da destruição. Isabela estava desconfiada e um pouco assustada, eu acho. Eu não pude evitar. Eu não ia explicar a ela o que estava acontecendo.
+
+Eu balancei a cabeça, tentando limpá-lo. Eu não podia salvar todos, mesmo com todo o meu conhecimento, e eu sabia disso; não tornou mais fácil viver com isso.
+
+Uma vez que Isabela se desculpou para ir às docas e verificar em seu navio, eu apimentado Leliana com perguntas sobre enviar cartas para as pessoas, e ela me assegurou que ela poderia garantir que todas as cartas que eu escrevi encontrasse seus destinatários pretendidos, para talvez dois soberanos por carta. Pensei no que queria dizer a quem por muito tempo, mas não descobri nada definitivo e resolvi pensar nisso por mais um tempo. Eu tinha muita moeda, pelo menos; Aedan tinha continuado o hábito de Duncan de dividir nossa moeda entre ele, Alistair, e eu, bem como garantir que nossos companheiros tivessem o suficiente para comprar o que precisassem, mas então sempre pagaram por coisas de sua própria bolsa de qualquer maneira, então meu estoque provavelmente equivalia a mais de trinta soberanos.
+
+Leliana então começou a me perguntar sobre minha noite com Alistair. Para seu desgosto, eu me recusei a dar-lhe qualquer detalhe, mas ela sabia sem ser dito que finalmente tínhamos feito sexo. E o sorriso comedor de no meu rosto deve ter dado algo, porque ela estava corando e rindo quase tanto quanto eu.
+
+Fui até o quarto que dividi com Alistair e tive um cochilo; os lençóis tinham sido trocados, ea sala foi ao ar para fora. Eu poderia me acostumar com isso... Mas é melhor que não. Quando Alistair chegou, algumas horas depois, com a armadura coberta de sangue, saí da cama em pânico.
+
+"O que aconteceu? Você está bem? Imediatamente comecei a verificar se ele tinha ferimentos. "Eu odeio não estar lá. Eu deveria ter sido. Por que eu deixei você ir sem mim?
+
+Ele tentou afastar minhas mãos, eventualmente agarrando meus pulsos para still-los. "Estou bem! Sierra. Olhe para mim, eu não sei o que fazer. Estou bem. Nada desse sangue é meu. Estamos todos bem. Fizemos alguns trabalhos para a diretoria do Chanter. E há um grupo de mercenários tentando limpar alguns dos problemas no Distrito do Mercado, e tem sido uma mini-guerra civil nos becos dos fundos. Ajudamos um grupo chamado Black... algo. Eu não sei o que bom ele vai fazer, mas ele pagou bem, tão bom o suficiente.
+
+Eu parei. "Os Irregulares de Blackstone?"
+
+"Isso soa certo. Você os conhece?
+
+"Um pouco. Não me lembro exatamente... Deixe-me pensar. Eles terão todo tipo de trabalho remunerado, embora em algum momento o filho do líder tentará um golpe, e tentará contratá-lo para assassinar seu pai, ou algo assim. Não faça isso, não faça isso. O filho é um verme.
+
+Ele riu. "Eu te amo, já te disse isso hoje?" Ele se inclinou para me beijar, e eu rapidamente me mudei. Ele fez beicinho.
+
+"Você tem sangue no rosto."
+
+"Criador! Desculpa. Vou tomar um banho, rápido. Então talvez possamos tentar aquele beijo de novo?
+
+O brilho em seu olho tornou óbvio que ele estava esperando por mais do que um beijo, e eu tremia. "Eu tenho uma ideia melhor."
+
+"Oh?"
+
+"Que tal eu ajudá-lo a lavar?"
+
+Acho que nunca imaginei alguém com armadura pesada se despindo tão rápido.
+
+Tínhamos a banheira cheia, nós dois de cara vermelha e rindo enquanto o garoto que arrastava a água sorria e piscava para Alistair quando ele pensou que eu não estava olhando. Demos a armadura do Alistair para ser limpa e trancamos a porta. Eu escorreguei meu vestido simples sobre minha cabeça, e deslizei para o banho, que era quente e cheirava tipo de floresta. O olhar de Alistair nunca me deixou enquanto eu esperava que ele enxaguasse o pior do sangue de sua pele e cabelo em um balde antes de se juntar a mim.
+
+Alistair molhado era ainda mais fantástico do que Alistair de qualquer outra maneira, e eu fui atraído por ele como ferro para um ímã. Ajoelhados na banheira, de frente para o outro, peguei o pano e comecei a lavar seu rosto, pescoço, braços e peito, enquanto ele me observava com olhos escuros. Ele ficou de pé, e eu lavei seu estômago e pernas, nós dois corando como que colocou sua masculinidade no nível com meu rosto. Quando ele se sentou, eu o fiz virar, então as costas dele estavam para mim, e lavei isso também, depois massageei o couro cabeludo com xampu. Ele flutuou de costas, com os olhos fechados, um olhar feliz em seu rosto, e eu enxaguei seu cabelo cuidadosamente antes de se inclinar sobre ele e pressionar um beijo em seus lábios macios.
+
+Esse era aparentemente o convite que ele estava procurando; ele sentou-se, desenhando-me em seu colo, então eu straddled ele, e beijou-me novamente. Eu podia sentir sua dureza contra minha coxa, e me levantei um pouco para capturá-la dentro de mim antes de afundar para descansar contra suas pernas. Suas mãos me acariciavam em todos os lugares, suavemente, mas firmemente para não fazer cócegas, e ele logo me fez choramingar de necessidade. Comecei a me mover, levantando e caindo para baixo, mas ele moveu as mãos para os meus quadris para me manter se movendo lentamente, provocando nós dois. A velocidade de lazer nos permitiu manter a conexão com nossos lábios, e ele engoliu meus gemidos à medida que o calor no meu núcleo aumentava. Eu queria acelerar, desesperado por libertação, querendo senti-lo passar dentro de mim, mas ele me segurou incansavelmente e tudo que eu podia fazer era suportar.
+
+Quando o lançamento finalmente chegou, era de alguma forma mais suave, suave do que o frenesi da noite, mas ao mesmo tempo estranhamente mais intenso e gratificante. Ele estremeceu através de sua própria ao mesmo tempo, mas ele não tinha Senti como se estivesse mais perto de Alistair quando tinha acabado do que antes e caí em seus braços com um longo suspiro.
